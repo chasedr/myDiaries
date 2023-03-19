@@ -11,3 +11,9 @@ David refused to wear the armor that King Saul offered him, and instead took onl
 David swung his sling and hit Goliath in the forehead with a stone, causing him to fall to the ground. David then took Goliath's own sword and beheaded him, thus defeating the Philistine champion and securing a great victory for Israel.
 
 The story of David and Goliath teaches us the importance of faith, courage, and trusting in God's power to help us overcome even the greatest of obstacles. It also shows us that sometimes the most unexpected person can be the one who accomplishes great things with the help of God's strength.
+
+# situation in working
+In our working environment, or in office, which things will we see?
+some abstract things, or some facts(real, physical)
+
+we maybe focus on factuals firstly, and then build our abstract world.
