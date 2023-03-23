@@ -1,3 +1,17 @@
+有盈利肯定是不会平仓的，既没有打止损，也没有到止盈目标。在达到这两个位置之前所有的操作都是操作焦虑综合症
+
+I believe that if I have enough stories, I will speak out many intersting stories. 
+For now, because I have no much stories, so I can't speak out them.
+
+I think people has many intersting opinions, if giving them some words, they can create everything.
+So I can select random words and random combination of them. And then creating some rules.
+1. 用字母随机生成单词
+2. 用单词随机生成一个单词集合
+3. 让人们造句
+4. 让AI造句
+5. 生成规则文件，（比如说某个单词左边不能跟哪些单词，右边能跟哪些单词）(比如某个单词不能跟某个单词出现在同一个语境下)
+5.1. 规则文件可以从网络上的文章中统计，看看单词组合的频率，然后再选择其中一种频率的组合
+
 Easy:
 想一下在筒子楼里长大的人，未来会是什么样的性格？我觉得应该讨论人的本性是什么？
 
