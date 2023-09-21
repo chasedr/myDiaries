@@ -1,3 +1,523 @@
+Easy:
+一轮牛趋势确定后，只买阴线，试试看
+
+Easy:
+交易有压力有恐惧是因为当下这比交易可能超出了你的控制范围，就像失控的过山车，失去控制权自然感觉恐惧。
+
+Easy:
+交易之前提前确定好损和止盈。在你交易范围内只能等待。要做到不忘初心。兵法上叫不忘本谋。你本来的谋划是什么。不要随便改变。
+
+Easy:
+可能意识到盈利是上天的事，亏损是交易员的事的话，就会有所帮助。
+
+Easy:
+思维方式是可以培养的，比如apple公司花那么多钱培养客户的使用习惯，而老年人很难学会的
+
+Easy:
+18913508267
+
+Easy:
+想一想从古至今什么东西最有价值，最永恒
+
+Easy:
+当自己不知道、看不懂行情的时候， 可以说服自己不去做，也可以反过来想一想，在这次行情中，我怎么让我手上的资产缩水10%？ 20%？ 30%   或者直接100%？
+
+Easy:
+对于一个新人来讲，有两个方向认识世界，一个是学习有定义的事物，也就是说有名字的事物。另一个是观察没有现成定义的事物，然后自己去给它下个定义。
+
+Easy:
+我学习英语时是先看事物，然后寻找对应的单词。 而不是先看单词，然后寻找相应事物。
+
+Easy:
+and internation 
+
+Easy:
+so possible substitute right for running twice a week
+
+Easy:
+悟了一个点，小级别的行情结构是大级别行情结构的原子结构。我只需要复盘小级别的行情，就能窥探出大级别的行情
+
+Easy:
+所以不用纠结了，复盘分时图
+
+Easy:
+牛吃草产生奶，那草是不是可以通过某种方式直接变成奶？
+
+Easy:
+苹果树吸收能量产生苹果，
+
+Easy:
+人貌似只能通过吃苹果补充能量，人不能直接吃能量，
+
+Easy:
+人没有能量的持续输入，并且到达一个零界点时，人将消失，并且变成能量。
+
+Easy:
+向人血液中输入葡萄糖，可以补充能量
+
+Easy:
+人貌似不能直接获得能量，而只能通过身体上的器官获得能量
+
+Easy:
+人从出生应该就在消耗能量，直到消耗完的那个时候，人就回归于能量了。
+
+Easy:
+地铁上抢座位的现象很频繁，大家温和的抢，有些人干脆等下一班车辆。 
+
+Easy:
+我想到一个好玩的游戏，如果给人增加一个属性，随机爆发出‘’打‘’的动作，挑防御力低的‘打’，然后抢占座位
+
+Easy:
+大周期的极小值右侧做小周期趋势，此次交易定义为反弹
+
+Easy:
+大周期的双突破，做小周期趋势，此次交易定义为趋势
+
+Easy:
+理想状态下，大周期多头必须打掉空头的最近止损位，才能说明行情反转了
+
+Easy:
+逆大势的时候不留仓过夜
+
+Easy:
+逆大势的时候做反弹一定要小心
+
+Easy:
+要玩随机游戏的话，交易市场就是最大的随机游戏啊
+
+Easy:
+今天听到一个新理论，苹果的一个工程师说，我们这一代就得卷，通过卷的方式为后代争取财富，就像我们父母那一代，辛勤劳动，为我们攒下来财富一样
+
+Easy:
+跌出空间，再去做多
+
+Easy:
+日内是有边界的
+
+Easy:
+日内参考位置：统计的波动率产生的上下边界， 昨高，昨低
+
+Easy:
+18913508267
+
+Easy:
+Do you usually wear T-shirts?
+
+Easy:
+Yes I do. I must say I am a T-shirt boy. In summer, T-shirt is my first choice. 
+
+Easy:
+How often do you wear T-shirts?
+
+Easy:
+In summer, I wear T-shirt every-day. I mean I'm a T-shirt boy. Did anyone not wear T-shirts in hot weather? Crazy.
+
+Easy:
+Do you like T-shirts with pictures or prints?
+
+Easy:
+Actually I don't like complex pictures on my T-shirts. I like pure color on my T-shirt. If my Clothes have some simple labels, it must be my love
+
+Easy:
+Do you think older people who wear T-shirts are fashionable?
+
+Easy:
+Definitely yes. It's very cool for older people. In my view, older people who wear T-shirt must have a younger soul.
+
+Easy:
+Would you buy T-shirts as souvenirs on vacation?
+
+Easy:
+urhme, uncertainty. I didn't buy T-shirts as souvenirs until now. I think it's interesting for me to try after you ask me this question.
+
+Easy:
+Part II   
+Describe something that you did with someone or a group of people
+You should say 
+   what it was
+   who you did it with
+   how long it took you to do this
+   and explain why you did it together
+
+Easy:
+the most impressive thing is  ....    Practicing english with friends, family,       not long time but try many times     planned to speak english for a long time      reading foreign articles,   watching videos based english language,    just not include speaking with people, and I have none foreign friends,    so  I take courage to practice with them.
+
+Easy:
+How do you get along with your neighbors?
+
+Easy:
+not often, in big city, like China Shanghai, did we have neighbors? I think not.   But   in countryside, we often chat with each other, talk about life .
+
+Easy:
+How do your neighbors help each other?
+
+Easy:
+I have no good ideas. May be give some money means help each other?  haha
+
+Easy:
+Do you think neighbors help each other more often in the countryside than in the city?
+
+Easy:
+In my view, city is an area to make money, not a place that help each other without  salary.   I born in countryside, and in the past  I felt many warm events.    Regardless of city or countryside, neighbors will help each other,  It's just that some are for money, and some are from the bottom of their hearts because they want to help others.
+
+Easy:
+Do you think parents should teach children how to cooperate with others? How?
+
+Easy:
+urh, yes and no, in the past, I think it's nesseccary, because cooperating with others, we can get more resouces， but it has a bad thing, If you lose this job, you will have no money to buy food.
+
+Easy:
+This is a difficult question for me to describe by english language.
+
+Easy:
+Do you think it is important for children to learn about cooperation?
+
+Easy:
+关于同步，时间要同步，度量标准要同步，用电电压标准要同步
+
+Easy:
+when I take a strange phrase, I need to make sentences by using it. So that can deep my impression.
+
+Easy:
+世界处于一种运行范围内，比如楼房层高，地铁内的层高。因为人们的平均身高原因，所以这些高度被确定下来了
+
+Easy:
+如何在交易中让自己保持乐观：如果自己是多头，那么在空头趋势中，欣赏空头赚钱，这样自己内心就很愉快。等到空头放弃做空后，我进入顺势做多，这样自己赚钱了，心情愉悦
+
+Easy:
+在盯盘的时候发现自己进入一种执念，或者忘记了趋势 日内上下边界
+
+Easy:
+从数学中寻找些信息安全的方式，比如说求一个极限得出密码
+
+Easy:
+趋势K线如果看起来比反转K线强，那么反转大概率不会成功
+
+Easy:
+如果一个东西打破了习惯，人处理起来就有一种不一样的感觉
+
+Easy:
+东西方语言不同还能交流起来，这是很神奇的地方。 我相信在用文字可表达的领域之外还有一片领域，不需要文字也能沟通
+
+Easy:
+比如饿了要吃饭 困了要睡觉，饿了甚至会偷或抢
+
+Easy:
+V型反弹 和 V型反转是不一样的，V型反弹很常见，V型反转不常见
+
+Easy:
+先把ESB例程跑一下，然后把codec数据读取出来透传出去
+
+Easy:
+市场不会一直不停的涨，也不会一直不停的跌
+
+Easy:
+当自己感觉价格再往上涨一涨就跑的时候，可能行情就到头了
+
+Easy:
+价格运动有一个边界，可以统计出来
+
+Easy:
+可以根据历史数据统计出来
+
+Easy:
+每个标的的边界都不一样
+
+Easy:
+短周期一定在二次突破入场，一次突破坚决不做，如果是V型反转，任由他去，这个利润我不拿，能做到吗？
+
+Easy:
+顺大逆小
+
+Easy:
+经常在顺势第二极小值附近不敢进场，今天就是这样，然后行情在10分钟内往上冲了十几个点，心情很崩
+
+Easy:
+在市场中，说没后悔的感觉其实是不可能的，错过一个行情还是有后悔的感觉
+
+Easy:
+有一种感觉，错过了最佳买点就不想入场了
+
+Easy:
+明天将音频压缩包放入到SD卡中 再回读出来用LC3解码器解码
+
+Easy:
+将K线图固定，体会慢慢往左推的时间流逝
+
+Easy:
+不要缩放图形
+
+Easy:
+如果行情要反转，一定要123突破，
+
+Easy:
+抛售高潮应该是大单的抛售高潮，作为散户应该去买，因为大单卖无可卖了。 抢购高潮应该是大单的抢购高潮，作为散户应该去买，因为大单资金告捷，卖不动了
+
+
+Easy:
+不是经常看到的文章说：散户的抛售高潮，散户的抢购高潮，不是这样的。 散户的行为是在开始跌的时候买，跌破的时候加仓，然后忍受浮亏压力，等到价格不跌了，有些散户的耐心被磨没，先割肉，有些散户忍到回本卖，有些散户在快回本的时候卖。
+
+Easy:
+等到价格涨不动了，散户再进场，有了盈利不舍得卖，等到价格跌到自己成本还不舍得卖，等到下一轮涨跌回本再卖。如此往复
+
+Easy:
+我应该自己去股市中讲故事，这样才能在股市中保持耐心
+
+Easy:
+医生护士太不容易了，我对他们的艰辛确实难以用文字来描述，为他们的艰辛感到心酸。 但是转到现实中来，有不愉快的地方，大家为了自己，行为上言语上相互伤害，这又是另一种心酸呐
+
+Easy:
+一味让着别人，或者无脑的让着别人。 跟别人抢占机会，事事都抢。 这两个极端，真的，还是难以用言语描述他们啊
+
+Easy:
+那个位置是“抢”和“让”的平衡点呢
+
+Easy:
+个人的资金周期的开始时间，连续亏损3次，就被冻结交易（原因是每个月不得亏损总资金的2%）。但是如果有盈利，则可以支持3次以上的连续亏损。 注意：有盈利之后切记很可怕的心态，就是频繁交易，心态飘
+
+Easy:
+今K线被昨K线包着，说明多空双方亏损和盈利都不大，大概五五开的盈亏
+
+Easy:
+应该在单根K线后半期买进和卖出
+
+Easy:
+统计五分钟K线现高点和前高点相等的次数，还有现低点与前低点相等的次数
+
+Easy:
+现K线和前K线的相对位置有讲究，能体验到场内多空双方的心态
+
+Easy:
+突破的玩法多种多样，比如三根连续的K线，依次突破前高点，我预期在第二次突破的时候，会向上走一波不回头的行情，所以我在第二次突破的时候入场。
+
+Easy:
+均线双突破机会 + 飞云双突破机会 + 突破前高买入停损单
+
+Easy:
++前面有成交量峰值+日内波动范围
+
+Easy:
+明确的机会和愿意尝试一下风险的机会
+
+Easy:
+轮船停航的布告还没发出来呢，就害怕上不了岛啊。 现在下雨就不出去玩啊，雨又不是不停的下，它总有停的时候，而且出去玩的时间又很长，所以要跟着计划走，除非雨一直下。 交易中，信号还没出来呢，急什么急？等一等再说
+
+Easy:
+调试左右耳分别解码
+
+Easy:
+编码长度
+
+Easy:
+说了这些话 做了这些事，都是要负责任的
+
+Easy:
+人性不是随机的，虽然自然界是随机的，但是人性不是随机的。这个仿佛给市场打了一剂稳定针
+
+Easy:
+Percy
+
+Easy:
+给点小利就往前冲，给点小阻碍就避开，这是我看到展览会密集人群，自己观察出来的现象
+
+Easy:
+因为更换手机，因此丢失了五天期货交易感想数据
+
+Easy:
+懂的东西不会随着时间推迟你不懂
+
+Easy:
+只可能遗忘
+
+Easy:
+大概率的情况下，个人性格在一些重要事情上将起到决定作用
+
+Easy:
+友谊东路145号
+
+Easy:
+我害怕的就是投资时间不连贯，当行情涨的时候我不在，当行情跌的时候我一直做多
+
+Easy:
+就算讲人情，也钢不过有权利的人
+
+Easy:
+也许我不一定对，但是我确实很难过
+
+Easy:
+情绪的积累可能保持几十年
+
+Easy:
+特别想了解一个事情，这个事情是客观的，还是情绪上很重视
+
+Easy:
+无奈 默认 认可
+
+Easy:
+累的时候不睡觉，到了睡觉时间点不睡觉，早上起床如果太早，又觉得没睡够。第二天想着晚上要早点睡，但是到了时间又觉得不累，不睡觉，恶性循环，
+
+Easy:
+1 严格来说是不是先天的病， 2 是不是也有可能是后天因为休息不当，导致病情加重
+
+Easy:
+导致需要做封堵手术，否则其实不用做封堵手术
+
+Easy:
+找一本喜欢的书 找一个尊敬的人贴在电脑旁 
+
+Easy:
+要让别人了解自己的情绪，所以要声情并茂，但在表达情绪时却伤害身体
+
+Easy:
+所以该如何做到平衡
+
+Easy:
+你使用伤害物的方法，必然会受到反噬
+
+Easy:
+大自然最终会对你做的事给出一个结论
+
+Easy:
+时间长短而已
+
+Easy:
+说话慢在某些时候是优势，它的功能有，比如稳定情绪
+
+Easy:
+文字看到的东西不一定是真的！！！
+
+Easy:
+投入到一个份情感中去之后，有很多细节没法用文字描述清楚
+
+Easy:
+[Link]官媒发声，允许降房价！刚刚，苏州3大真相曝光！楼市格局大变！
+
+Easy:
+跟人聊天感觉不踏实（特别是似陌生非陌生的那群人），或者说我不知道哪些“废话”集合可以达成我的目标
+
+Easy:
+鸽子的求生本能是向上飞，也就是用翅膀，但是向上飞是飞不出去的，如果换个思路，先站在地上，往外走两步，再飞起来，不是就飞走了吗
+
+Easy:
+强势文化和弱势文化， 我觉得实际上就是对客观世界的认识是否确定，越是确定越是强势，“确定”即是熟知客观世界发展的规律，并且有自我纠错的能力
+
+Easy:
+数传TTL驱动：链接：https://pan.baidu.com/s/15L9PRW9mu7TFRMp_lUlboQ?pwd=8888 
+提取码：8888
+
+Easy:
+配对步骤
+1，给数传模块供电，绿灯闪烁。
+2，按住配对按钮3秒，红灯快闪，进入配对模式。配对模式持续时间10秒。
+3，在10秒内给另一个数传模块供电，绿灯常亮表示配对成功
+
+Easy:
+周五晚上十点左下腹疼痛，周日在镇上医院做B超，发现有一个大概0.7cm的肾结石脱落，现在还在疼痛。
+
+Easy:
+今年7月14号做心脏卵圆孔封堵手术，想咨询下应该怎么办
+
+Easy:
+今天行情出现下跌趋势中的三角形，等待第二天的开盘走势，反弹还是继续下跌，这是未知的。 这次我深切的体会到了市场的随机性。 市场背后的资金动向，全部藏在掌控资金的人大脑里，根本就是未知的，这有点像三体里面的破壁计划中的破壁人
+
+Easy:
+今天是2023年9月11日 周一
+
+Easy:
+看盘的时间周期就像摄像头的视角，是有限的
+
+Easy:
+投机过程中等待一分钟K线一根一根完成需要很多耐心，而且等待的过程中很无聊
+
+
+Easy:
+生命的终极意义应该就是劳动、养育下一代，劳动、养育下一代，如此循环。
+
+Easy:
+如果华夏大陆没有外敌入侵，他们还会保持昌盛么？可能也不行，因为内部存在矛盾，矛盾不得化解的话，要么借助外力，要么自行灭亡
+
+Easy:
+在劳动和养育下一代过程中总是会产生各种各样的矛盾，为了解决这些矛盾，才产生了其它的事情
+
+Easy:
+看盘的时间周期就像摄像头的视角，是有限的
+
+Easy:
+投机过程中等待一分钟K线一根一根完成需要很多耐心，而且等待的过程中很无聊
+
+Easy:
+根据成交明细中的数字大小，播放枪炮声
+
+Easy:
+1. 播放音频    pygame.mixer.init()    music1=pygame.mixer.Sound('.\gunsound.mp3')    music1.play()
+
+Easy:
+2.  获取队列中的成交数据，按单笔成交量播放不同的声音
+
+Easy:
+3. 根据每分钟的成交量大小播放不同的声音
+
+Easy:
+4. 创建一个线程，再创建一个时钟，每秒去成交明细中查看当前时间是否有成交，如果有成交，那么就往FIFO队列里面放
+
+Easy:
+5. 做多播放左声道，做空播放右声道，如果出现连续成交高于某个值，则播放冲锋音
+
+Easy:
+6 先拿历史数据回测，再想办法获取实时行情数据
+
+Easy:
+必须要让客观实在的东西给我勇气做决定，不能依靠别人做决定
+
+Easy:
+STM32 DIY 飞控 套餐 资料V3链接：https://pan.baidu.com/s/15m5emmOXr0BEkoUYDyiSzA 
+提取码：6yjt
+后面有什么问题，联系我们
+亲，加一下企鹅群，有什么不懂的都可以问，大家一起交流学习！欢迎加入STM32四轴爱好者企鹅群：810149456  密码：3218896
+
+Easy:
+STM32 DIY 飞控 安装+使用说明书链接：链接：https://pan.baidu.com/s/1Q4akZLRckz9F7uBSjuHVUQ 
+提取码：v6gl 
+STM32四轴飞控安装视频教程连接：
+1、组装视频教程：https://www.bilibili.com/video/BV1Eg411Q7Ah/
+2、遥控器操作控制视频教程：https://www.bilibili.com/video/BV1ee411W7VG?p=2
+3、飞行效果视频：https://www.bilibili.com/video/BV1ee411W7VG?p=3
+4、PID调试视频教程：https://www.bilibili.com/video/BV18r4y1F7Ta/?spm_id
+新手遇到的问题：
+1、飞机为什么偏飞的很厉害？怎么微调都不行？
+解决方法：放平飞机在地面上， 在打开飞机开关。因为
+注意！
+先看安装资料，因为C程序等资料是（虚拟物品），要求 好评 后发送！请尊重 开发者的心血！希望理解！
+
+Easy:
+任何人都要被尊重，被需要
+
+Easy:
+1.连接热点，连接UDP转发服务器
+
+Easy:
+2. 输出6路PWM波，接到遥控汽车上
+
+Easy:
+3.接收2.4G接收器的6路PWM波，
+
+Easy:
+4.连接Wi-Fi 连接UDP转发服务器
+
+Easy:
+5.租一个服务器
+
+Easy:
+顺大势，可以顺着大成交量的方向做，分钟线中特别容易看到。 顺大势也可以是相对短周期而言的长周期有一个明确的方向
+
+
+
+
+
+三体
+1、生存是文明的第一需要。
+2、文明不断增长和扩张,但宇宙中的物质总量基本保持不变。
+
 微信文件助手中那么多公众号文章，躺在文件助手中两年了，都没看过第二遍，可见过多的信息自己也不看。
 要精简信息，过多的信息可能都是垃圾。
 
