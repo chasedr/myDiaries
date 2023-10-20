@@ -34,3 +34,7 @@ A story about 怜悯小动物， imagine that 朋友家三层楼房，一楼窗�
 手动计算1949年10月1日下午三时建国的四柱八字。其中时柱的计算还存在认知不清的情况。待查证。
 
 2023/10/18 尝试将hexo部署到github上，目前已经安装成功hexo, 但是部署时看起来太复杂，没有搞明白。贴一个官方部署链接 https://hexo.io/zh-cn/docs/github-pages
+
+2023/10/19 Finally successfully deploying hexo to github.
+
+2023/10/20 
