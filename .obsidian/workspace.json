@@ -4,17 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "1b5410fc90ab0d0e",
+        "id": "5ba4697bb98554fc",
         "type": "tabs",
         "children": [
           {
-            "id": "b6fbde93dd50eda8",
+            "id": "b120516388a912f9",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "mazdaRX8马自达.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "新标签页"
+              "title": "mazdaRX8马自达"
             }
           }
         ]
@@ -90,6 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "mazdaRX8马自达.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -99,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "反向链接"
+              "title": "mazdaRX8马自达 的反向链接列表"
             }
           },
           {
@@ -108,11 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "mazdaRX8马自达.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "出链"
+              "title": "mazdaRX8马自达 的出链列表"
             }
           },
           {
@@ -136,12 +142,13 @@
             "state": {
               "type": "outline",
               "state": {
+                "file": "mazdaRX8马自达.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "大纲"
+              "title": "mazdaRX8马自达 的大纲"
             }
           }
         ]
@@ -161,6 +168,15 @@
       "command-palette:打开命令面板": false
     }
   },
-  "active": "b6fbde93dd50eda8",
-  "lastOpenFiles": []
+  "active": "b120516388a912f9",
+  "lastOpenFiles": [
+    "README.md",
+    "mazdaRX8马自达.md",
+    "IELTS_test_type.txt",
+    "^2da854.md",
+    "一把着.md",
+    "汽车保养方式.md",
+    "保养.md",
+    "Opinions.md"
+  ]
 }
