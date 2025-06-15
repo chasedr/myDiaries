@@ -11,6 +11,16 @@
             "id": "b120516388a912f9",
             "type": "leaf",
             "state": {
+              "type": "graph",
+              "state": {},
+              "icon": "lucide-git-fork",
+              "title": "关系图谱"
+            }
+          },
+          {
+            "id": "9bb57af928c37199",
+            "type": "leaf",
+            "state": {
               "type": "markdown",
               "state": {
                 "file": "mazdaRX8马自达.md",
@@ -21,7 +31,8 @@
               "title": "mazdaRX8马自达"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -168,14 +179,18 @@
       "command-palette:打开命令面板": false
     }
   },
-  "active": "b120516388a912f9",
+  "active": "9bb57af928c37199",
   "lastOpenFiles": [
-    "README.md",
+    "2025-06-10.md",
+    "详解Zephyr设备树（DeviceTree）与驱动模型.rst",
+    "Laws - Lesson Notes 14 July 2022.pdf",
+    "一篇使用拼音构成的文章.md",
     "mazdaRX8马自达.md",
+    "AlBrooks.md",
+    "汽车保养方式.md",
     "IELTS_test_type.txt",
     "^2da854.md",
     "一把着.md",
-    "汽车保养方式.md",
     "保养.md",
     "Opinions.md"
   ]
