@@ -13,8 +13,8 @@ if(linetext == 0):
     wordcount = input("input how many words do you want to generate:")
     wordcount = int(wordcount)
     print(wordcount)
-  
-wordcount = linetext
+else:
+    wordcount = linetext
 
 linecount = -1
 for linecount, line in enumerate(open(FileName,'r', encoding='utf-8')):
